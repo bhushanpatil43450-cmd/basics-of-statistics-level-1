@@ -1,1 +1,1 @@
-# basics-of-statistics-level-1
+# basics-of-statisti
